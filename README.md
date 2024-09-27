@@ -1,4 +1,4 @@
-## hello! I am Sergio, a UXUI Designer, Product Designer and Fullstack developer.
+## hello! I am Sergio, a UXUI Designer, Product Designer, Product Manager and Mobile DEveloper.
 
 ## I am colombian
 
